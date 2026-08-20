@@ -9,7 +9,8 @@ $\color{#BEC1BC}{\textsf{and it's time}}$
   $\color{#486382}{\textsf{for something biblical}}$
 <br>
 <br>
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=53b14f&mode=dark)](https://github.com/kittinan/spotify-github-profile)
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0d1117&interchange=true&profanity=false&bar_color_cover=true&bar_color=53b14f">
 
 
 ---
