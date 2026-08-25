@@ -74,7 +74,7 @@ helblinde; null specification; goreshit; sewerslvt; yakui the maid; myGO!!!!; ca
 
 <ins>*остальное, за что шарю:</ins>  
 saya no uta; subahibi; postal; l4d; nekopara; ngo; mgs; totono; mcgee's alice; outlast; higurashi; touhou; supersonico; oneshot; neon white; littebigplanet; dmc; house flipper; subnautica; splatoon; animal crossing  
-а вообще, [вот](https://steamcommunity.com/profiles/76561198969316360/) мой стим*
+а вообще, [вот](https://steamcommunity.com/id/sspiralstatic/) мой стим*
 
 ***
 
