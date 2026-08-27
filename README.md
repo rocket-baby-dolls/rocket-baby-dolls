@@ -15,7 +15,7 @@ $\color{#BEC1BC}{\textsf{and it's time}}$
 
 ---
   
-  <p>  <img src="https://64.media.tumblr.com/33a66541933e4193eed51c8c4690d84b/f4cf3be3a03a39af-25/s250x400/da1be549073070d109e97e456a43e50cd2d7c6ff.gifv" alt="jpg" width="200"></p>
+  <p>  <img src="https://i.pinimg.com/originals/aa/09/1f/aa091f5e54c99f9bdbc2ad9268520656.gif" alt=";lfsl[fkio" width="250"></p>
 
 . . .  ***привет!!!!!***   <img src="https://64.media.tumblr.com/9c14dec7b9dad586ec5a0f70748d3acf/2c233c0d3ddf0421-87/s75x75_c1/fa2d076ee8dfdb14d86c145df051a218527422b5.gifv" alt="jpg" width="30">  
 ***честно, я вообще не профи в этих ваших приветствиях, так что просто сразу к делу***
@@ -38,7 +38,6 @@ c+h тоже приветствуется, **особенно если скин�
 *dni, как таковое, у меня отсутствует,  
 но при любом упоминании прям аморальщины мне будет некомфортно. черный юмор приветствуется, но, пожалуйста, не перегибайте*
 
-<img src="https://64.media.tumblr.com/c3f21eb150c13a87e7559c30bb8a8854/e54de9453552722e-1d/s1280x1920/aae0d5587fc59c2cc7747abfea9a33b0a2159723.pnj" alt="gif" width="200">
 <br>
 
 ***
