@@ -57,7 +57,7 @@ my chemical romance; linkin park; radiohead .*
 <div align="right">
   
 <ins>*также слушаю:</ins>  
-helblinde; null specification; goreshit; sewerslvt; yakui the maid; myGO!!!!; camellia; leaf; t+pazolite; loli in early 20s; machine girl; chemlab; and one; rammstein; femtanyl; kmfdm; korn; limp bizkit; 30stm; the prodigy;; rage against the machine; grey daze; slipknot; metaroom; primer55; dead by sunrise; system of a down; deftones; type o negative; nine inch nails; miss construction; maebi; molchat doma, the caretaker; sign crushes motorist; kikuo; electroforez; phosgore; unter null; london after midnight .* 
+helblinde; null specification; goreshit; sewerslvt; yakui the maid; myGO!!!!; roselia; camellia; leaf; t+pazolite; loli in early 20s; machine girl; chemlab; and one; rammstein; femtanyl; kmfdm; korn; limp bizkit; 30stm; the prodigy;; rage against the machine; grey daze; slipknot; metaroom; primer55; dead by sunrise; system of a down; deftones; type o negative; nine inch nails; miss construction; maebi; molchat doma, the caretaker; aphex twin; sign crushes motorist; kikuo; electroforez; phosgore; unter null; london after midnight .* 
 
 <div align="center">
   
