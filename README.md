@@ -69,7 +69,7 @@ helblinde; null specification; goreshit; sewerslvt; yakui the maid; myGO!!!!; ca
   
 *я очень люблю жанр ритм игр. мои любимые - bang dream! girls band party, osu!(taiko) и muse dash.  
 в [осу](https://osu.ppy.sh/users/19584334) мне больше нравится делать мапы, чисто для себя. мне это приносит удовольствие :)  
-в данный момент также обсессия на stardew valley :) (<img src="https://64.media.tumblr.com/0ba967be716a3187f0e35f9369dfd697/97ad94af8247c7ce-69/s100x200/29a29650cbadaab7f1ac25cff91b5d889a4bf1c6.gifv" alt="jpg" width="30"> <-- my dear hubby)*
+в данный момент также обсессия по stardew valley :) (<img src="https://64.media.tumblr.com/0ba967be716a3187f0e35f9369dfd697/97ad94af8247c7ce-69/s100x200/29a29650cbadaab7f1ac25cff91b5d889a4bf1c6.gifv" alt="jpg" width="30"> <-- my dear hubby)*
 
 <div align="right">
 
