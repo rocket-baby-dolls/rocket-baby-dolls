@@ -52,7 +52,8 @@ c+h тоже приветствуется, **особенно если скин�
 ***мое сердце, моя душа, моя пассия, вся моя сущность***
 <br></br>
 <ins>*в данный момент huge обсессия по:</ins>  
-**muse**; my chemical romance; **linkin park**; radiohead .* 
+**muse** ;
+my chemical romance; linkin park; radiohead .* 
 
 <div align="right">
   
