@@ -1,12 +1,9 @@
 <div align="center">
   
-$\color{#BEC1BC}{\textsf{and it's time}}$ 
-  $\color{#486382}{\textsf{we saw a miracle}}$ </p>
-  <img src="https://i.pinimg.com/736x/fd/29/f9/fd29f9d8ad5c4663ace0528e151b77de.jpg" alt="jpg" width="250">
+  <img src="https://i.pinimg.com/originals/36/46/14/3646141d7aa7d2a5924a6bc0243f2268.gif" alt="jpg" width="270">
   <br>
   
-  $\color{#BEC1BC}{\textsf{come on, it's time}}$ 
-  $\color{#486382}{\textsf{for something biblical}}$
+  $\color{#B7630A}{\textsf{« shh, go to sleep . . . »}}$
 <br>
 <br>
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=u0u4aguznmg71vt7b17xnp0vc&redirect=true">
