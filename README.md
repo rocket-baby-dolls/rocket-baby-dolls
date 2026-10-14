@@ -1,5 +1,7 @@
 <div align="center">
   
+  $\color{#A7966C}{\textsf{« can you free me, and free me from this world? »}}$
+  
   <img src="https://i.pinimg.com/originals/36/46/14/3646141d7aa7d2a5924a6bc0243f2268.gif" alt="jpg" width="270">
   <br>
   
