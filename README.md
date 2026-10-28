@@ -17,9 +17,8 @@
   <p>  <img src="https://i.pinimg.com/originals/89/e2/99/89e299643db1e0af4911dbe0e0b3915e.gif" alt=";lfsl[fkio" width="300"></p>
 
 . . .  ***привет!!!!!***   <img src="https://64.media.tumblr.com/9c14dec7b9dad586ec5a0f70748d3acf/2c233c0d3ddf0421-87/s75x75_c1/fa2d076ee8dfdb14d86c145df051a218527422b5.gifv" alt="jpg" width="30">  
-***честно, я вообще не профи в этих ваших приветствиях, так что просто сразу к делу***
 
-ㅤ
+
 
 *хожу под никнеймом сая, мне 19  
 20.03.2007  
