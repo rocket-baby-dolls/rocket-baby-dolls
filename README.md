@@ -1,6 +1,6 @@
 <div align="center">
   
-  $\color{#A7966C}{\textsf{« in your world no one is crying alone. in your world no one is dying alone »}}$
+  $\color{#B97B6F}{\textsf{« in your world no one is crying alone. in your world no one is dying alone »}}$
   
 <p>  <img src="https://i.pinimg.com/736x/8b/50/9e/8b509e25114b432cf2d801b863251f25.jpg" alt=";lfsl[fkio" width="300"></p>
 <br>
@@ -10,3 +10,4 @@
 <br>
 <sub><a href="https://github.com/pt-hall-of-media">pony towns matt bellamy n_n</a></sub>
 </div>
+
